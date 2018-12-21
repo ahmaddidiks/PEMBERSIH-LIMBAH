@@ -1,2 +1,1 @@
-# THAILAND-2019
-untuk lomba
+STILL ON PROGRES.
